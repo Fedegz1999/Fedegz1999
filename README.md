@@ -16,3 +16,12 @@ Me describo a mi mismo como una persona compañera, curiosa y trabajadora. Al di
 
 ![aptitudes](https://user-images.githubusercontent.com/102623282/203176466-495100a5-73a8-4f77-bd49-5d6d418f4a5b.jpg)
 
+.
+
+
+📲𝐂𝐎𝐍𝐓𝐀𝐂𝐓𝐀𝐌𝐄:
+
+ʟɪɴᴋᴇᴅɪɴ: https://www.linkedin.com/in/fede-gutierrez-1362a3233/
+
+ᴄᴏʀʀᴇᴏ ᴇʟᴇᴄᴛʀᴏɴɪᴄᴏ: federicoguti1999@gmail.com
+
