@@ -4,7 +4,7 @@
 
 𝗠𝗲 𝗽𝗿𝗲𝘀𝗲𝗻𝘁𝗼...
 
-Soy Federico, vivo en Argentina y tengo 23 años. A la edad de 18 comencé a estudiar Comunicación en la universidad, a los 21 me di cuenta que lo que me gustaba era el diseño y comencé a realizar cursos sobre ello. A comienzos del 2022 descubrí el mundo de la programación y quede fascinado con lo que se puede lograr a través del desarrollo web. Por lo tanto ingresé al bootcamp de "Henry" y despues de un camino de mucho aprendizaje logre terminar y tener el ansiado titulo de "Desarrollador full Stack".  
+Soy Federico, vivo en Argentina y tengo 23 años. A la edad de 18 comencé a estudiar Comunicación en la universidad, a los 21 me di cuenta que lo que me gustaba era el diseño y comencé a realizar cursos sobre ello. A comienzos del 2022 descubrí el mundo de la programación y quede fascinado con lo que se puede lograr a través del desarrollo web. Por lo tanto ingresé a un bootcamp  y despues de un camino de mucho aprendizaje logre terminar y tener el ansiado titulo de "Desarrollador full Stack".  
 Me describo a mi mismo como una persona compañera, curiosa y trabajadora. Al dia de hoy espero encontrar una oportunidad en el mundo de la programación para demostrar mis conocimientos y aprender mucho mas. 
 
 
